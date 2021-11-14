@@ -21,7 +21,7 @@
 🤝🏻 Let's Connect and Collaborate! 🤝🏻    
 
 ### Contact Me:
-<a href="www.linkedin.com/in/pranav-hingankar-85a600207/"><img src="https://image.flaticon.com/icons/svg/174/174857.svg" width="35"></a> &nbsp;&nbsp;  <a href="https://www.instagram.com/pranavh_18/"><img src="https://image.flaticon.com/icons/svg/174/174855.svg" width="35"></a>   &nbsp;&nbsp; <a href="https://www.youtube.com/channel/UCyg2QcwsDUlqXEiQDrjeaRQ"><img src="https://image.flaticon.com/icons/svg/174/174883.svg" width="35"></a>   &nbsp;&nbsp; 
+<a href="www.linkedin.com/in/pranav-hingankar-85a600207"><img src="https://image.flaticon.com/icons/svg/174/174857.svg" width="35"></a> &nbsp;&nbsp;  <a href="https://www.instagram.com/pranavh_18/"><img src="https://image.flaticon.com/icons/svg/174/174855.svg" width="35"></a>   &nbsp;&nbsp; <a href="https://www.youtube.com/channel/UCyg2QcwsDUlqXEiQDrjeaRQ"><img src="https://image.flaticon.com/icons/svg/174/174883.svg" width="35"></a>   &nbsp;&nbsp; 
  
 <br>
 
