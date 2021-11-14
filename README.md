@@ -9,7 +9,7 @@
 + I am a Second-Year Computer Science Student at Walchand College of Engineering Sangli 🏫
 + Trying to learn Full-Stack Web Development 🌐
 
-<img align="right" src="https://media.giphy.com/media/o0vwzuFwCGAFO/giphy.gif" width="220">
+
 
 ### Hobbies:
   + Watching Cricket
