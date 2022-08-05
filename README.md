@@ -21,7 +21,7 @@
   
 
 ### Contact Me:
-<a href="www.linkedin.com/in/pranav-hingankar-85a600207" target="_blank"><img src="https://www.freeiconspng.com/uploads/linkedin-logo-3.png" width="35" /></a> &nbsp;&nbsp;  <a href="https://www.instagram.com/pranavh_18/"><img src="https://image.flaticon.com/icons/svg/174/174855.svg" width="35"></a>   &nbsp;&nbsp; <a href="https://www.youtube.com/channel/UCyg2QcwsDUlqXEiQDrjeaRQ"><img src="https://image.flaticon.com/icons/svg/174/174883.svg" width="35"></a>   &nbsp;&nbsp; 
+<a href="https://www.linkedin.com/in/pranav-hingankar-85a600207" target="_blank"><img src="https://www.freeiconspng.com/uploads/linkedin-logo-3.png" width="35" /></a> &nbsp;&nbsp;  <a href="https://www.instagram.com/pranavh_18/"><img src="https://image.flaticon.com/icons/svg/174/174855.svg" width="35"></a>   &nbsp;&nbsp; <a href="https://www.youtube.com/channel/UCyg2QcwsDUlqXEiQDrjeaRQ"><img src="https://image.flaticon.com/icons/svg/174/174883.svg" width="35"></a>   &nbsp;&nbsp; 
  
 <br>
 
